@@ -45,8 +45,8 @@ If you're interested in learning more about my journey and projects, please feel
 
 
 ## Find me around the web 🌎
-Website https://www.dahliamai.com/
+🌐 Website https://www.dahliamai.com/
 
-LinkedIn https://www.linkedin.com/in/dahlia-mai/
+💼 LinkedIn https://www.linkedin.com/in/dahlia-mai/
 
 
