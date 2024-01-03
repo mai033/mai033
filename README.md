@@ -44,7 +44,7 @@ If you're interested in learning more about my journey and projects, please feel
 ![GitHub](https://img.shields.io/badge/github-%23121011.svg?style=for-the-badge&logo=github&logoColor=white)
 
 
-## Connect with me
+## Find me around the web 🌎
 Website https://www.dahliamai.com/
 
 LinkedIn https://www.linkedin.com/in/dahlia-mai/
